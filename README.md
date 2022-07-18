@@ -7,3 +7,5 @@ example: VR Chat https://youtu.be/ySfgZOGr27s
 https://www.youtube.com/results?search_query=we+met+in+virtual+reality
 
 [We Met In Virtual Reality | Official Trailer | HBO](https://youtu.be/UMBxESl38o0)
+
+[Meet the Artist: Joe Hunting on "We Met in Virtual Reality"](https://youtu.be/WSNJUngJ_fQ)
